@@ -5,4 +5,4 @@ Nivel B1 English
 
 A golden minute:
 
-1. My brother's cat is called Ivar and has a very unusual mutation: it has 3 hair colors, which are black, white and brown. But this mutation has caused a very rare disease in cats: epilepsy
+1. A blackbird was hunted by a cat and we thought it was dead because it did not move. But when the cat let go, she started moving her wings and flew away.
